@@ -1,0 +1,3 @@
+sound visual interactive electronic poet, live performance, art and poetry apps, electronic music, radio art, sound installation, vegetable music...
+
+https://linktr.ee/jpiringer
